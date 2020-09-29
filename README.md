@@ -1,0 +1,2 @@
+# porownania
+zbior blyskotliwych porownan
