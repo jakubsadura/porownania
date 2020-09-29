@@ -3,4 +3,4 @@
 ## cos nie dziala
 
 * sypie sie jak zwir z przyczepy
-* rwie jak reksio szynke
+* szarpie jak reksio szynke
